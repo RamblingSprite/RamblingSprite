@@ -1,5 +1,5 @@
-<h1 align="center">Salut fellow neet! I'm Toria</h1>
-<h3 align="center">A passionate frontend developer from Indonesia</h3>
+<h1 align="center">Salut fellow neet✋! I'm Toria</h1> ![Alt Text](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR3hmegoOX85hQtDiQA4ttSWJ2cF7JQUQEkhA&usqp=CAU)
+<h3 align="center">A pprofesional neet</h3>
 
 - 🔭 I’m currently working on [nothing](all)
 
