@@ -20,7 +20,7 @@
 
 - 📝 I regularly write articles on [YOUR MAMA HOUSES](YOUR MAMA HOUSES)
 
-- 💬 Don't ~Ask me~ nothing **cause im a neet**
+- 💬 Do ~Ask me~ nothing **cause im a neet**
 
 - 📫 ~How to reach me~ **YOU CAN'T**
 
