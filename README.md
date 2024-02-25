@@ -5,9 +5,9 @@
 
 - 🌱 i [do](just)
 
-- sleep [trough](the day,)
+- 💤 sleep [trough](the day,)
 
-- the night, **and evrything**
+- 🌌 the night, **and evrything**
 
 - 👨‍💻 All of my projects are available at [YOUR MAMA HOUSES](YOUR MAMA HOUSES)
 
