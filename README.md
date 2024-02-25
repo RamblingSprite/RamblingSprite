@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [I CURRENTLY BECOME A NEET KING](I CURRENTLY BECOME A NEET KING)
 
-- ⚡ Fun fact **I think iam become more neet than before**
+- ⚡ Fun fact **I think iam become more neet than the real neet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
