@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on [nothing](all)
 
--  i [do](just)
+- 🌱 i [do](just)
 
 - sleep [trough](the day,)
 
