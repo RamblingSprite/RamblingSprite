@@ -1,11 +1,11 @@
 <h1 align="center">Salut fellow neet✋! I'm Toria</h1> 
 <!--pp
 -->
-
+<h3 align="center">A pprofesional neet</h3>
 
 ![Alt text](https://th.bing.com/th/id/OIG4.soVLua704jFvdIz3yY6f?w=1024&h=1024&rs=1&pid=ImgDetMain)
 
-<h3 align="center">A pprofesional neet</h3>
+
 
 
 - 🔭 I’m currently working on [nothing](all)
