@@ -1,7 +1,7 @@
 <h1 align="center">Salut fellow neet✋! I'm Toria</h1> 
 <h3 align="center">A pprofesional neet</h3>
 
-![Alt Text](https://th.bing.com/th/id/OIG3.4y2OhZCCgpI5FSwBAvPV?w=1024&h=1024&rs=1&pid=ImgDetMain)
+![Alt Text](https://th.bing.com/th/id/OIG4.OkGvRAgrIxKMGHLoLWow?w=173&h=173&c=6&r=0&o=5&pid=ImgGn)
 
 - 🔭 I’m currently working on [nothing](all)
 
