@@ -3,11 +3,11 @@
 
 - 🔭 I’m currently working on [nothing](all)
 
-- the night, **and evrything**
-
-- i [do](just)
+-  i [do](just)
 
 - sleep [trough](the day,)
+
+- the night, **and evrything**
 
 - 👨‍💻 All of my projects are available at [YOUR MAMA HOUSES](YOUR MAMA HOUSES)
 
