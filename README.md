@@ -1,4 +1,4 @@
-<h1 align="center">Salut fellow neet✋! I'm Toria</h1> ![Alt Text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2F%40Alisa_Chung%2Fshorts&psig=AOvVaw2SjKPkFIrkG2qpkybCLBdY&ust=1708946012794000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCMDGg5KuxoQDFQAAAAAdAAAAABAK)
+<h1 align="center">Salut fellow neet✋! I'm Toria</h1> ![Alt Text](https://endchan.net/.media/a60c02d23411ec459b0ef9e2df608767-imagepng.png)
 <h3 align="center">A pprofesional neet</h3>
 
 - 🔭 I’m currently working on [nothing](all)
