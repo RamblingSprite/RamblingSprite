@@ -3,7 +3,7 @@
 -->
 <h3 align="center">A pprofesional neet</h3>
 
-![Alt text](https://th.bing.com/th/id/OIG4.soVLua704jFvdIz3yY6f?w=1024&h=1024&rs=1&pid=ImgDetMain)
+https://www.bing.com/images/create/anime-girl-that-look-badass-and-emotionless-smokin/1-663fb16df7944d50934428bfda5ebb59?id=zX5qvYZ6fD4Lwu3qKSQfuw%3d%3d&view=detailv2&idpp=genimg&idpclose=1&thId=OIG1.kFwMdb03_PvppvfRtMM9&frame=sydedg&FORM=SYDBIC
 
 
 
